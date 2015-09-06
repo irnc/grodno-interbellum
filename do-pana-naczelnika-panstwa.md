@@ -15,3 +15,13 @@ rozpaczy setek rodzin, opłakujących śwych bestjalsko umęczonych lub wygnanyc
 blizkich -- wyrażamy raz jeszcze swą wdzięczność najwyższą i przesylamy Tobie,
 Naczelniku i uosobionej w Tobie Rzeczypospolitej Polskiej -- życzenia potężnego
 dalszego istnienia, w dalszej chwale i wielkości".
+
+---
+
+## Источник
+
+* [Opublikowany list Rady Miejskiej m. Grodna skierowany do Naczelnika Państwa][list-1920]
+  * хранится в папке "Listopad- grudzień 1920" (октябрь-декабрь 1920)
+  * List opublikowany w gazecie (wycinek).
+
+[list-1920]: http://www.pilsudski.org/archiwa/dokument.php?nrar=701&nrzesp=2&sygn=32&handle=701.180/7620
