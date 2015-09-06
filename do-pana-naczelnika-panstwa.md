@@ -1,8 +1,6 @@
+# Do Pana Naczelnika Państwa
 
-
-(V 4 ` Do
-sf ~ Pana Naczelnika Państwa l
-J(  Belweder, Warszawa.
+_Belweder, Warszawa._
 
 rie _„Rada Miejska na. Grodna na swymg
 *Ch Pierwszym plenarnym, po odparciu inwazji
