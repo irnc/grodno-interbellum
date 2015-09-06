@@ -2,63 +2,26 @@
 
 _Belweder, Warszawa._
 
-rie _„Rada Miejska na. Grodna na swymg
-*Ch Pierwszym plenarnym, po odparciu inwazji
-4:0 bolszewickiej, posiedzeniu» jednomyślnie i
-to- jednogłośnie uchwaliła wyrazić Tobie, Na-
+„Rada Miejska m. Grodna na swym
+pierwszym plenarnym, po odparciu inwazji
+bolszewickiej, posiedzeniu -- jednomyślnie i
+jednogłośnie uchwaliła wyrazić Tobie, Na-
+czelniku Państwa, hold swój i z serca całej
+ludności bez różnicy wyznania i narodo-
+wości, płynącą wdzięczność za uwolnienie
+naszngo prastarego miasta i kraju od prze-
+mocy, üęlsku_ 1 gwałtówbord bolszewickich
+i iprzywrocenle panowania legalności, bez-
+pleczeństwa i ładu społecznego, gwarantu
+jącego swobodę osobistą i publiczną.
 
-
-
-D
-I
-
-
-
-ł
-
-stantu-vuw os.-
-
-i»
-
-f!
-
-"t.
-'Y' WOŚCI', płynącą wdzięczność za uwolnienie N'
-zy pleczeństwa i ładu społecznego, gwarantu» 'I
-m zdezorganizowanego, w obliczu łez  roz- š C
-g.
-;i czelniku 1 uosobionej w Tobie Rzeczypos-š;
-
-ria czelniku Państwa, hold swój i z serca całejš
-ść ludności bez różnicy wyznania i narodo-š
-ch « naszngo prastarego miasta i kraju od prze- rę
-i9" mocy, üęlsku_ 1 gwałtówbord bolszewickich
-i iprzywrocenle panowania legalności, bez-l
-!jącego swobodę osobistą i publiczną.
-g, W ObhCZl nniasta zniszczonego, życia;
-paczy setek rodzin, opłakujących śwychš
-„ bestgalsko umęczonych lub wygnanych bliz-i
-gę, lnchmwyrażamy raz jeszcze swą wdzięcz~ g g
-pg ność najyyższą i przesylamy Tobie, Na-'Śg
-r- politej Polskiej ---- życzenia potężnego dai- i:
-' „_ dfd-uchwale i '
-
-
-
-
-
-szego istnienia Wa;
-i kościüę. i . i
-
-l:
-
-
-
-.d.5 j,
-.ł
-
-
-.N n;  'ń
-
-
-
+W obliczu miasta zniszczonego, życia
+zdezorganizowanego, w obliczu łez i roz-
+paczy setek rodzin, opłakujących śwych
+bestjalsko umęczonych lub wygnanych bliz-
+kich -- wyrażamy raz jeszcze swą wdzięcz-
+ność najwyższą i przesylamy Tobie, Na-
+czelniku 1 uosobionej w Tobie Rzeczypos-
+politej Polskiej -- życzenia potężnego dal-
+szego istnienia, w dalszej chwale i wiel-
+kości".
